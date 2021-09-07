@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Vanessa!
+- I'm here to learn new things about computers and other things as well! I'm still learning to things will be slow and bad. 
+--->
